@@ -1,2 +1,2 @@
-# FabLabs of Nepalese craft
+# FabLab Craft Nepal
 # Communicate, Learn and Share
