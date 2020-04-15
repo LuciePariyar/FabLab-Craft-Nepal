@@ -1,2 +1,2 @@
-# FabLab Craft Nepal
-# Communicate, Learn and Share
+# FabLab Heritage Nepal
+# Safeguarding heritage for tomorrow
