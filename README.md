@@ -1,2 +1,2 @@
 # FabLab Heritage Nepal
-# Safeguarding heritage for tomorrow
+# Save nepalese heritage tomorrow
